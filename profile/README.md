@@ -1,4 +1,4 @@
-## Through Endurance, We Conquer
+## 
 
 <!--
 
